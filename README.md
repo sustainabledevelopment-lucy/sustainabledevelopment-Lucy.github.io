@@ -1,1 +1,1 @@
-# sustainabledevelopment-Lucy.github.io
+# sustainabledevelopment-lucy.github.io
